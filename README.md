@@ -4,4 +4,4 @@
 - I say that like i'm not 1/2 of them (i don't use twitter)
 
 
-     ![](https://media.discordapp.net/attachments/1031304996005888140/1052458991403405352/dckumoi-019122f3-7afa-4f71-b98f-0516e5654e63.png)
+ [![click for credit](https://media.discordapp.net/attachments/1061880649180532776/1061880671196418121/dbfxi4m-c0580812-a15a-426c-a246-761ad19f27c2.png)](https://www.deviantart.com/thispoisonedone/art/Crow-divider-with-extra-crows-691885318)
