@@ -5,4 +5,4 @@
 - Please read [rentry](https://rentry.co/IfIWereaZombie)
 
 
-[![](https://media.discordapp.net/attachments/1061880649180532776/1062889867656302622/d8hrgnb-551a8e81-eecd-4092-af57-3b39df57f779.png)](https://www.deviantart.com/celestialbunnie/art/Spring-Bunting-513564167)
+![](https://media.discordapp.net/attachments/1061880649180532776/1065176728856703018/dac513d-65fa05cd-2c30-4559-9b5f-d15e9e5532e1.gif)
