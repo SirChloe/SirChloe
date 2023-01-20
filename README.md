@@ -1,5 +1,5 @@
 ### Hello world •°. *࿐
-- Hi, i'm Venus!
+- Hi, i'm Venus, i love meeting new people and making new friends, but sometimes i can get **drained** and not talk a lot
 - I play that dumb horse game full of mentally-ill people from Twitter
 - I say that like i'm not exactly like them (i now use twitter)
 - Please read [rentry](https://rentry.co/IfIWereaZombie)
